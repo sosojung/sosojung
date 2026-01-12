@@ -1,1 +1,1 @@
-### HI, I'm MOON SO jUNG 👋
+### HI, I'm Moon So jung 👋
